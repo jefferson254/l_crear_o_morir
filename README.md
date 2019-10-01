@@ -44,4 +44,22 @@ Porque no tenemos un Steve Jobs en Latinoamérica -Cultura social y legal que no
 
 <blockquote>Estamos entrando en un periodo de transformación digital</blockquote>
 
+## MI propio Pensamiento sobre este Libro 
 
+La forma en como latinos han logrado convertir sus proyectos en realidad, usando su creatidad, y a través de la capacidad de arriesgarse, darse el permiso de fracasar para tener aprendizajes y dando rienda suelta a su creatividad. 
+ En la Actulidad  existe la innovacion y creatividad :
+ *Innovacion Colaboracion a traves de la ayuda mutua entre las nuevas generaciones y muy de moda via internet.
+ 
+ ## El mundo que se viene 
+ Andres Oppenheimer viajo a Palo Alto en Silicon Valley, California ( centro de  innovacion a nivel mundial) y a varios paises para entrevistar a "las mentes más creativas del planeta" y enteder que las distigue de los demás.
+ - Existen situaciones a nivel personal, emocional y social que ayudan a " destacar" la cratividad e innovacion sólo    es cuestión de impulsar y dar cause a nuestra  creatividad (un objetivo).
+ - La innovación se está democratizando, y cada vez esta más al alcance de la gente.
+ - En lugares como Silicon Valley, el secreto es el tipo de gente que se concentra en ese lugar:
+   existe una apertura mental y un culto a lo diferente; viven concentrados en sus proyectos y  trabajando en sus ideas locas no necesitan conocerse para comunicarse entre si cuando tienen  Satanford y su excenlencia en investigación y desarrrollo contribuye mucho. 
+-  Los innovadores quieren vivir en lugares vibrantes donde se glorifique el talento más que el dinero. Pues las         mentes creativas atraen los entornos económicos y esto hace que sean las empresas las que busquen las grandes         concentraciones de mentes creativas y no al revés.
+
+* Existen un "ecosistema" que hace posible la innovación : educación de calidad, empresas y universidades que           inviertan en investigación y desarrollo, ambiente económico que propicie la inversión  de riesgo y una legislación    que  aliente la creación de nuevas empresas.
+* Indispensable:  CULTURA DE TOLERANCIA CON EL FRACASO. "El éxito es el resultado de ir de fracaso en fracaso, si       perder el entusiasmo". (Winston Churchill), y la gente de Silicon Valley  se vanagloria de sus fracasos proque las    ven como experiencias de trabajo.
+Por todo lo anterior, se concluye , la importancia de contar con una masa critica de mentes creativas respaldadas por excelentes sistemas educativos, porque la creatividad es un proceso social, y los más grandes avances vienen de la gente de la que aprendemos, de la gente con la que comtimos, y de la gente con la que colaboramos.
+
+## "Los grandes Innovadores tienen 3 cualidades: Tencnología, Tolerancia y Valor.
